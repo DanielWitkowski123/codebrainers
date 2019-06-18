@@ -1,1 +1,0 @@
-zmiany, zmiany, zmiany
